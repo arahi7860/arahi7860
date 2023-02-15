@@ -1,5 +1,6 @@
 # 💫 About Me:
-- ⚡ Fun fact: I like to read comics, manga, and sci-fi novels. I also like going to the gym. <br>- - 📫 How to reach me: <br>  - Email: arahi@fordham.edu<br>  - LinkedIn: https://www.linkedin.com/in/ahmedrahi/
+- ⚡ Fun fact: I like to read comics, manga, and sci-fi novels. I also like going to the gym. 
+- <br>-  📫 How to reach me: <br>  - Email: arahi@fordham.edu<br>  - LinkedIn: https://www.linkedin.com/in/ahmedrahi/
 
 
 ## 🌐 Socials:
